@@ -43,7 +43,7 @@ Limiting processed items can help prevent harmful bacterial overgrowth and reduc
 
 ### 3. Use Probiotics
 
-Fermented foods such as yogurt or sauerkraut and quality **[natural probiotic for gut and skin support](https://primebiomenow.com)**help restore a healthy balance in the digestive system.
+Fermented foods such as yogurt or sauerkraut and quality [natural probiotic for gut and skin support](https://primebiomenow.com) restore a healthy balance in the digestive system.
 
 ### 4. Stay Hydrated
 
