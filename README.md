@@ -1,6 +1,6 @@
 # The Gut-Skin Connection: How a Healthy Gut Can Improve Your Skin
 
-![Gut-Skin Health](images/Gut-Skin%20Health.webp)
+![Gut-Skin Health](https://raw.githubusercontent.com/healthynutrix/the-gut-skin-connection/main/images/Gut-Skin%20Health.webp)
 
 Most people focus on skincare products, but lasting skin health often begins inside the body — particularly in the gut. The digestive system plays a significant role in how the skin looks and feels.
 
