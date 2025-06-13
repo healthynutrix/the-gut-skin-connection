@@ -1,6 +1,6 @@
 # The Gut-Skin Connection: How a Healthy Gut Can Improve Your Skin
 
-Most people focus on skincare products, but lasting skin health often begins inside the body — particularly in the gut. The digestive system plays a significant role in how the skin looks and feels.
+Most people focus on skincare products, but lasting skin health often begins inside the body - particularly in the gut. The digestive system plays a significant role in how the skin looks and feels.
 
 This article explores how gut health influences your complexion, what signs to look for, and simple ways to support both.
 
@@ -61,7 +61,7 @@ Gentle movement, deep breathing, or time outdoors can ease pressure on the gut a
 
 The connection between digestion and skin is clear. When the gut works well, skin often becomes calmer, brighter, and more balanced.
 
-Improving daily habits — like choosing whole foods, staying hydrated, and using a trusted probiotic — supports both internal health and outward appearance.
+Improving daily habits — like choosing whole foods, staying hydrated, and using a trusted probiotic - supports both internal health and outward appearance.
 
 Even minor adjustments can lead to visible changes. Consider starting with one step today and building from there.
 
